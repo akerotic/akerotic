@@ -1,3 +1,1 @@
-
-
-
+Feel free to interact any time, i may be afk since im usually watching series / yt or playing something so send me a whisper !⠀Besides from the basic dni yall can interact, just dont be extremely weird . If you don't get along with my friends i'll probably avoid you. I usually dont accept friend request if we didnt talk before, so please try to talk with me at least a little bit before adding me :3
