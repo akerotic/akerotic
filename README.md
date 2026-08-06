@@ -1,3 +1,3 @@
 Feel free to interact any time, i may be afk since im usually watching series / youtube or playing something so send me a whisper ! Besides from the basic dni yall can interact just dont be extremely weird . If you don't get along with my friends i'll probably avoid you. I usually dont accept friend request if we didnt talk before, so please try to talk with me at least a little bit before adding me. In advance i am really awkward when it comes to interacting with people specially when im doing it alone, i ask you to be patient with me.
 
-My interests change really quick, right now im mostly hyperfixated with The Legend of Zelda. Others are Honkai star rail Doki Doki literal club Deltarune Overwatch and visual novels, RECOMMEND ME MORE
+My interests change really quick, right now im mostly hyperfixated with The Legend of Zelda. Others are Honkai star rail Doki Doki literal club Deltarune Overwatch and visual novels, RECOMMEND ME MORE on my ata !!
