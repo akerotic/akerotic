@@ -4,4 +4,4 @@ In advance i am really awkward when it comes to interacting with people, i ask y
 
 My interests change really quick, right now im mostly hyperfixated with The Legend of Zelda. RECOMMEND ME THINGS on my [ata](https://greenie.atabook.org/) !!
 
-<img width="100" height="100" alt="5a96a80da1e2b1e9bc8878b689024b25-removebg-preview" src="https://github.com/user-attachments/assets/a9afc4e5-0c89-4986-8577-0bed879c31b3" />
+<img width="70" height="70" alt="5a96a80da1e2b1e9bc8878b689024b25-removebg-preview" src="https://github.com/user-attachments/assets/a9afc4e5-0c89-4986-8577-0bed879c31b3" />
