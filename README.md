@@ -6,7 +6,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ㅤ.ㅤ.
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤyay !!  [@ponytown-yumes](https://github.com/ponytown-yumes)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@ponytown-yumes](https://github.com/ponytown-yumes)
 <p align="center">
   <img width="338" height="34" alt="Captura de pantalla (44)" src="https://github.com/user-attachments/assets/bbb624ad-4735-47d7-8e8f-31ba79131df6" />
 </p>
