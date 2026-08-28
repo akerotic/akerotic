@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤstop using rentry [read and share](https://read-and-share.straw.page)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[sing atabook](https://shuuann.atabook.org/) + [strawpage](https://shuuann.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[sing atabook](https://shuuann.atabook.org/) + [strawpage](https://shuuann.straw.page)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤyayayy!! ^^ [@ponytown-yumes](https://github.com/ponytown-yumes)
 <p align="center">
