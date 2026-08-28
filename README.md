@@ -9,5 +9,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤyayayy!! ^^ [@ponytown-yumes](https://github.com/ponytown-yumes)
 <p align="center">
-  <img width="334" height="30" alt="Captura de pantalla (44)" src="https://github.com/user-attachments/assets/e9420d80-5e6b-4596-ac93-2dbafe9f3e89" />
+  <img width="334" height="32" alt="Captura de pantalla (44)" src="https://github.com/user-attachments/assets/e9420d80-5e6b-4596-ac93-2dbafe9f3e89" />
 </p>
