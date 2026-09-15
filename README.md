@@ -2,4 +2,4 @@
 
 Ik this is lazy, ill make it decent later i hope
 
-[A lot of ppl in the Hoyoverse area got psoted on pinterest](https://tiffanywhenicatchu.straw.page/)
+[A lot of ppl in the Hoyoverse area got posted on pinterest](https://tiffanywhenicatchu.straw.page/)
