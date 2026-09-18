@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤyall will look at this peak art my oomfie dreamly did me for my bday !
 <p align="center">
-  <img <img width="380" height="540" alt="Giftie_for_Ai_-" src="https://github.com/user-attachments/assets/640964fb-1a33-46e3-a59d-74481ab9275b" />
+  <img <img width="480" height="640" alt="Giftie_for_Ai_-" src="https://github.com/user-attachments/assets/640964fb-1a33-46e3-a59d-74481ab9275b" />
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@Dreamloby](https://github.com/Dreamloby) !! (16/09)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@Dreamloby](https://github.com/Dreamloby) !! (16/09)
