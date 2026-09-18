@@ -7,4 +7,9 @@
   <img <img width="480" height="640" alt="Giftie_for_Ai_-" src="https://github.com/user-attachments/assets/640964fb-1a33-46e3-a59d-74481ab9275b" />
 </p>
 
+<p align="center">
+  <img width="400" height="125" alt="20260915_193720" src="https://github.com/user-attachments/assets/3a47c413-846e-4e53-ab98-b2f79aae8281" />
+
+</p>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤby [@Dreamloby](https://github.com/Dreamloby) !! (16/09)
