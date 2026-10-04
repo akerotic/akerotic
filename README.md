@@ -1,1 +1,1 @@
-Feel free to interact any time, i may be afk since im usually watching series / youtube, playing something or studying so send me a whisper . Besides from the basic DNI yall can interact just dont be extremely weird . If you don't get along with my friends i'll probably avoid you. I usually don't accept friend requests if we haven't talked before, so please try to talk with me at least a little bit before adding me. My english is quite bad, specially when it comes to spelling so i tend to use the translator, u can always correct me i will thank u. 
+
